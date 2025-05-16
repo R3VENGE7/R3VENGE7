@@ -4,9 +4,9 @@
 
 ╭───────────────────── 
               
- "Name's Heathcliff. Clobbering people is my specialty. 'Course, only when I fancy it."  ⌉
+ "Name's Heathcliff. Clobbering people is my specialty. 'Course, only when I fancy it. "
 
-  --------------------------------------------------------------------------                                 Heathcliff Fictkin.      --     Any. prns.   -- Strawpg with full intro soon.
+    Heathcliff Fictkin.      --     Any. prns.   -- Strawpg with full intro soon.
               If you see me feel free to interact. i dont mind. 
                  usually in docks but you can also find me near 
                              market and forsaken area
