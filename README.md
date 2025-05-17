@@ -5,7 +5,7 @@
 
  "Name's Heathcliff. Clobbering people is my specialty. 'Course, only when I fancy it. "
 
-    Heathcliff Fictkin.      --     Any. prns.   -- Strawpg with full intro soon.
+    Heathcliff Fictkin.      --     Fem Terms .   -- Strawpg with full intro soon.
          If you spot me, don’t hesitate to interact—I don’t mind.
           Usually lurking around the docks, but you’ll also find me near       
                         he market and forsaken area.
