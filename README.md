@@ -2,3 +2,5 @@
 
 
 not really an intro i wanted the gif here.
+
+![](https://komarev.com/ghpvc/?username=R3VENGE7&label=spectres)
